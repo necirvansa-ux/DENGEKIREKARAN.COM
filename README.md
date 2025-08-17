@@ -1,0 +1,2 @@
+# DENGEKIREKARAN.COM
+دەنگێ کرەکاران
